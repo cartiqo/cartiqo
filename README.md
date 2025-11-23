@@ -39,7 +39,7 @@ I’m a passionate **developer and community builder** focused on crafting clean
 ## 💬 Let's Connect!
 
 📧 [Email Me](mailto:duckodas@gmail.com)  
-📧 [Join my Discord](https://discord.gg/7jGVVbBq5h)  
+📧 [Join my Discord](https://discord.gg/DukMZutcHk)  
 
 ---
 
